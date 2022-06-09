@@ -6,5 +6,7 @@ Olá seja bem vindo ao meu livro de Receitas :wave:
 
 - Strogonoff de Frango
 
+- Pavê
+
   
 
